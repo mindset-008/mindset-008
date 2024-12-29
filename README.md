@@ -3,16 +3,14 @@
 
 ### pronouns
 
-> im nor/mal or ig he/him even tho thats stupid asl
+> I'm just a chill guy, thats all you need to know!
 
 
 ### projects and socials
 
 > [!IMPORTANT]
 >
-> [Godku Project *reborn*](https://discord.gg/godkuprojectreborn)
+> [Godku Project](https://discord.gg/godkuproject)
 >
 > no socials
 
-
-adding more when im done with the farmbot
